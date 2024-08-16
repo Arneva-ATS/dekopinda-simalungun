@@ -1,1 +1,1 @@
-# dekopinda-simalungun
+# dekopinda-karanganyar
